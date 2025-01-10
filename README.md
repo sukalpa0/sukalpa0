@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sukalpa0
 - 👀 I’m interested in coading!
-- 🌱 I’m currently learning grade 11
+- 🌱 I’m currently studying in high school
 - 💞️ I’m looking to collaborate on codes
 - 📫 How to reach me instagram
 
